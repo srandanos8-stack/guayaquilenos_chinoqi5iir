@@ -1,1 +1,0 @@
-# guayaquilenos_chinoqi5iir
